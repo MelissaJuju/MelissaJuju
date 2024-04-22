@@ -1,0 +1,8 @@
+- 👋 Oi, meu nome é Melissa Lauro
+- 👀 E estou interessada na área de TI e Administração.
+- 🌱 Atualmente estou cursando Administração.
+- 📚 E também estou fazendo supletivo online, terminado em 4 meses.
+- 📫 Moro no Centro de Campinas.
+- 💡 Tenho disponibilidade para trabalhar apenas dias de semana.
+- 🩺 Meu principal foco é fazer faculdade de veterinária.
+- Aqui está um pouco sobre mim
